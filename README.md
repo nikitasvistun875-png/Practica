@@ -1,2 +1,3 @@
 Я крутой и вообще...
 YA PIDOR IVAN
+ostavit
